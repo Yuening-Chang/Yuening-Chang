@@ -1,0 +1,4 @@
+- Hi, I’m Yuening Chang and I have a Master Degree in Risk Management and a Bachelor Degree in Financial Mathematics & Statistics.
+- I have 4+ years of coding experience and I’m good at combining computer programming skills with risk management theories to make impactful results.
+- I’m currently looking full-time oppurtunities for any risk management / data analytics / data governance roles.
+- Feel free to reach me via email: yc4130@columbia.edu
